@@ -1,0 +1,2 @@
+# Denemeseysi
+Denemek icin
